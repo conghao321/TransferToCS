@@ -15,7 +15,7 @@
 大家更可以一起刷题...!
 
 One for All, All for One
-Let's go.
+Join us and become a real CSer.
 
 
 
