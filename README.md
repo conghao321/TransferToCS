@@ -14,6 +14,8 @@
 如何学习数据结构算法，
 大家更可以一起刷题...!
 
+我的VX 908432105
+
 One for All, All for One
 Join us and become a real CSer.
 
